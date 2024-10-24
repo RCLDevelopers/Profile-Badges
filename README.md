@@ -1,5 +1,4 @@
-# 📲 HOW TO GET SOCIAL MEDIA FOLLOWERS (TIKTOK, INSTAGRAM, DISCORD, YOUTUBE, SPOTIFY, TWITCH, TWITTER, TELGRAM):
-🔗 **https://www.youtube.com/watch?v=Lr7MDkpp2b4**
+
 
 ### ➡️ Or if you want to skip the video, you can directly join the Discord server: 
 
